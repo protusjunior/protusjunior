@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on matters about programming and cyber security in depth
 - 📫 How to reach me,you can reach me via my Email " juniorprotus75@gmail.com " or my phone number @0758917551
 - 
-- 😄 Pronouns: ???
+- 😄 Pronouns: Him
 - ⚡ Fun fact:likes joking alot 
 
 <!---
